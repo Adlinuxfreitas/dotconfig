@@ -1,0 +1,1 @@
+Tentando simplificar a vida
